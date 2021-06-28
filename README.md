@@ -1,4 +1,4 @@
-<img src="https://tenor.com/view/x-force-x-arms-ryan-reynolds-wade-wilson-deadpool-gif-11446810" align="right" width="350" height="300">
+<img src="https://cdn.discordapp.com/attachments/856286390692872203/859068057154355210/xforce.gif" align="right" width="350" height="300">
 
 ## İzmirde bir motosiklet gangsterinin kardeşi !
 
@@ -23,7 +23,7 @@
 
 ### Sosyal medya platformlarım
 
-[<img width="22" src="https://tenor.com/view/cute-bird-parrot-perroquet-oiseau-gif-13534334" align="left" />][discord]
+[<img width="22" src="https://unpkg.com/simple-icons@v5/icons/discord.svg" align="left" />][discord]
 
 
 
