@@ -23,7 +23,7 @@
 
 ### Sosyal medya platformlarım
 
-[<img width="22" src="https://unpkg.com/simple-icons@v5/icons/discord.svg" align="left" />][discord]
+[<img width="22" src="https://cdn.discordapp.com/attachments/856286390692872203/859068057154355210/xforce.gif" align="left" />][discord]
 
 
 
