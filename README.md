@@ -1,4 +1,4 @@
-<img src="https://cdn.discordapp.com/attachments/856286390692872203/859068057154355210/xforce.gif" align="right" width="500" height="500">
+<img src="https://cdn.discordapp.com/attachments/856286390692872203/859068057154355210/xforce.gif" align="right" width="500" height="250">
 
 ## İzmirde bir motosiklet gangsterinin kardeşi !
 
