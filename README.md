@@ -7,8 +7,8 @@
 <br />
 <br />
 
-## I did Give The Right To Speak
- | ハッカー
+## coksel jett oynarim op de ustayim insanlar bana jett abi der varmi daha ustu? operatorgodx im ok?
+plat smurf reynayim en sevdigim silah frenzy riot ocu fiyatini arttirmis onun anasini NEYSE, bicak kullanmam frenzy kullanirim ok?
 
 <br />
 <br />
