@@ -34,9 +34,9 @@ plat smurf reynayim en sevdigim silah frenzy riot ocu fiyatini arttirmis onun an
 
 
 ### Benim Kutsallarım
-<img src="https://cdn.discordapp.com/attachments/856286390692872203/857368543775293510/833982778977550357.png" width="25" height="25">
-<img src="https://cdn.discordapp.com/attachments/856286390692872203/857368546102476810/Q.png" width="25" height="25">
-<img src="https://cdn.discordapp.com/attachments/856286390692872203/858764576509001769/GALAXY_PP_SI.png" width="25" height="25">
+<img align="left" src="https://cdn.discordapp.com/attachments/856286390692872203/857368543775293510/833982778977550357.png" width="25" height="25">
+<img align="left" src="https://cdn.discordapp.com/attachments/856286390692872203/857368546102476810/Q.png" width="25" height="25">
+<img align="left" src="https://cdn.discordapp.com/attachments/856286390692872203/858764576509001769/GALAXY_PP_SI.png" width="25" height="25">
 
 
 
