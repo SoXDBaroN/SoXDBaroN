@@ -1,4 +1,4 @@
-<img src="https://tenor.com/view/pop-smoke-gif-20744708" align="right" width="300" height="300">
+<img src="https://media.discordapp.net/attachments/927330129821204480/928765929670733824/a_ec6d3d67efa9e6031764f588fbd943cb.gif" align="right" width="300" height="300">
 
 ## Yanımda gang, no, Bonnie and Clyde
 
