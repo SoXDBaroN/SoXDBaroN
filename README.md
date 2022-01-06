@@ -25,7 +25,7 @@
  [<img width="22" src="https://images.app.goo.gl/zpF2mPLbmbgkTvLL8" align="left" />][instagram]
 
 
-[discord]: https://discord.com/users/821040785046503510
+[discord]: https://discord.com/users/924229703886331915
 [instagram]: https://instagram.com/funaccxbaron
 <br />
 <br />
